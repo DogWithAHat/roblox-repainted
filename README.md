@@ -14,5 +14,6 @@ NOTES!!!!!!!!!!!!!!
 you will not get banned for doing this.
 it is client sided.
 only you, the user, can see it.
+and check the sounds folder i put extra sounds in there
 
 no, i wont do anything to the roblox app thingy (you know what im talking about)
